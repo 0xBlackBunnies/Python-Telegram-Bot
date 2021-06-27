@@ -1,27 +1,20 @@
 <div align="center">
 
-# المقدمة
+# قريبا
 
-قريبا
+
+<br>
+<br>
+
 <br>
 <br>
 
   
-```
-
-رابط الشرح
-
-قريبا
-  
-```
-  
+[**Fahad Mohammed 不**](https://twitter.com/ip_274)
 
 
-<br>
-<br>
  
 </div>
 
 
-[**Fahad Mohammed 不**](https://twitter.com/ip_274)
 
